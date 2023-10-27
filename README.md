@@ -1,1 +1,0 @@
-# subavishwa_photo_polio
